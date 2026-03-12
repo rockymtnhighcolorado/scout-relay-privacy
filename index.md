@@ -77,4 +77,4 @@ We may update this Privacy Policy from time to time. Any changes will be reflect
 If you have any questions, concerns, or requests regarding this Privacy Policy or the App's data practices, please contact:
 
 **Scout Relay**
-Email: greg.whitman@gmail.com
+Email: _TBD_
